@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Ulysses for macOS macro with professional Macro for Ulysses for macOS - real-time editing and quick search. Featuring real-time editing and quick search, it's the
 
 
 
